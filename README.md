@@ -1,2 +1,0 @@
-# trnfvn-dsaibBBB
-Batch created
